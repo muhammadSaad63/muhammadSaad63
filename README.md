@@ -1,6 +1,6 @@
  ### السلام علیکم ورحمۃ اللہ وبرکاتہ 
 # I'm <b>Muhammad Saad</b>
-a freshie at Fast-NUCES, Karachi.  🙂
+a freshie pursuing, للہ الحمد, BSCS at FastNU, Karachi.  🙂
 
 <br>
 
